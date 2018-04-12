@@ -1,0 +1,2 @@
+# carne
+Somente para alfabetizados
